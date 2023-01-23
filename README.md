@@ -1,2 +1,1 @@
-# jake
 Jake Lundrigan Memorial
