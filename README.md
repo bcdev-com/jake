@@ -1,1 +1,0 @@
-Jake Lundrigan Memorial
